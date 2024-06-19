@@ -97,8 +97,60 @@ We write papers, sometimes pay to publish, and readers even pay to read—can so
 
 📱 Social Media
 ------------
-None. Except for anonymous accounts I use to look at memes.
+* None. Except for anonymous accounts I use to look at memes.
 
+📝 Quotes: Read, Written, and Generated
+------------
+* Man's logic: Claim the moon but still fight over parking spaces. No man's land is every man’s peace.
+* Rebels thrive on the rules they refuse to obey.
+* Saint is just a sinner who keeps trying.
+* Solve with intellect < prevent with foresight.\
+Ease with tech < make it irrelevant.\
+Open doors with money < exist beyond doors\
+Lead well < let self-govern.\
+Create order < transcend rules.
+* Every agreement actually proves that two people do not think the same thing.
+* Self-censorship is carrying out someone else's dirty work by our own will.
+* Men dig tons of earth to find an ounce of gold.
+* The true challenge in computing is not making machines think like humans but making humans think about the potential of machines.
+* Shadows are not merely absence of light, but companions proving its presence.
+* A mirror may be spotless, yet it holds no power to cleanse the visages it mirrors.
+* Palaces boast myriad windows, yet offer little in the way of vision.
+* Social rules are like a spider's web; even the strongest one will break one day.
+* The more you observe, the more you realize how little you observe.
+* If you know the end, it's a chore.
+* Men build walls, not to protect treasures, but to hide their emptiness.
+* The mightiest empires fall, but a single act of kindness echoes through eternity.
+* While kings sit on thrones, ideas rule the world.
+* In the market of desires, I'm the one asking for refunds.
+* The mightiest king still fears the honesty of a child.
+* Society is strange: They ask for your opinion only to get offended by it.
+* Fashion dictates our beliefs more than reason, and we choose assumption over understanding.
+* The world doesn't need more millionaires; it needs more Diogenes.
+* Companies exploit, society chains, people conform; change whispers.
+* You’ll find being honest and transparent puts you at risk—of becoming well-respected, that is.
+* If you always cater to consensus, you’re following, not leading.
+* Groups search for consensus, individuals search for truth.
+* Man's true voyage doesn't lie in seeking new landscapes, but in having new eyes.
+* Doubt is the surest companion.
+* Stubbornness is a trait that can only be validated by another stubborn person.
+* Lost shoes, found path\
+Lost map, found world
+Lost Wallet, found worth
+Lost sight, gained vision
+Lost name, found self
+* If you overvalue possessions, people begin to steal.
+* Even if everyone is looking; do the right thing.
+* Justification itself is another belief.
+* The worst is he who treats his slave well; he has simply found a better whip and perpetuates the system.
+* Steal enough and manipulate belief, you could buy a communitys favor to canonize you. But beware for you’ve just funded the next revolution.
+* Without justice, a state is just a larger gang; with it, it becomes an ideal of self-governance.
+* The modern economy creates the illusion that wealth feeds poverty, when in fact poverty feeds wealth.
+* Volcanoes are silent until they burn the earth itself.
+* I invite you to evade the rational herd that, in their escape from the flock, forgot they too have become one.
+* Chasing endless wants, facing growing discontent: Want is the treacherous mirage, promising life but bringing decay.
+* Who would applaud a man perfectly acclimated to a society that is but a hospice of moral illness?
+* Midst lies, insincerity, misread intentions brewing resentment, dealing obscured coercion yet within us lies nobler potential, dear mortals.
 
 📜 References
 -------------
